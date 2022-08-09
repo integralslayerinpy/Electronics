@@ -1,2 +1,2 @@
 # codingforfun
-great thinks 
+Hi everyone this is load for having fun.
